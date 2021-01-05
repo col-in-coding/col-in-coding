@@ -1,2 +1,2 @@
-# :wave: hi there
+# :wave: Hi there! Bienvenue à tous
 
